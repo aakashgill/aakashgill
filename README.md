@@ -1,11 +1,9 @@
 🙏🏻 नमस्ते | Hello 👋🏻
 
-just found out about this cool feature of github
+My name is Aakash Gill and I'm currently working at [VWO](https://vwo.com/)
 
-My [website](https://aakashgill.in)
+You can visit my [website](https://aakashgill.in)
 
-Currently working at [VWO](https://vwo.com/)
+or Say [hi](mailto:aakashgill210@gmail.com)
 
-Say [hi](mailto:aakashgill210@gmail.com)
-
-Follow me on [Twitter](https://twitter.com/__aakash__)
+or Follow me on [Twitter](https://twitter.com/__aakash__)
