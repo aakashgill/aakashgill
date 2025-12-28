@@ -1,4 +1,4 @@
-🙏🏻 नमस्ते | Hello 👋🏻
+Hello 👋🏻 | ਸਤਿ ਸ੍ਰੀ ਅਕਾਲ | 🙏🏻 नमस्ते
 
 My name is Aakash Gill and I'm currently working at [VWO](https://vwo.com/)
 
